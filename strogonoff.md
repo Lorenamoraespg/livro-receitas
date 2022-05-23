@@ -1,4 +1,4 @@
-# Strogonof de frango
+# Strogonof de frango 🐔
 
 ### Ingredientes
 
